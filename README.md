@@ -8,6 +8,14 @@ NIM : 1120031027
 - Daniel Adha 
 NIM : 1120031011
 
-File yang seharusnya kami Upload adalah lebih dari 100 fila ,sebanyak 701 file jadi hanya beberapa yang dapat kami kirim 
+File yang seharusnya kami Upload adalah lebih dari 100 fila ,sebanyak 701 file jadi hanya beberapa yang dapat kami kirim, 
+
+
+
+
+https://drive.google.com/drive/folders/1qQL00mBysVs1BU2_dHkKVpa1NCAYLOeL?usp=sharing 
+
+
+
 
 Terima kasih atas perhatiannya
